@@ -108,17 +108,17 @@ chronological order:
 > 3.     [The Marvels (November 11,
 > 2023)](https://indianshortner.in/UJ7vo)
 >
-> 4.     Captain America: New World Order (July 26, 2024)
+> 4.     Captain America: New World Order (February 14, 2025)
 >
-> 5.     Thunderbolts (December 20, 2024)
+> 5.     Thunderbolts (May 2, 2025)
 
 **Phase Six (2025-2027)**
 
-> 1.     Blade (February 14, 2025)
+> 1.     Blade (November 7, 2025)
 >
-> 2.     Deadpool 3 (May 3, 2025)
+> 2.     Deadpool 3 (July 26, 2024)
 >
-> 3.     Fantastic Four (May 2, 2025)
+> 3.     Fantastic Four (July 25, 2025)
 >
 > 4.     Avengers: The Kang Dynasty (May 1, 2026)
 >
